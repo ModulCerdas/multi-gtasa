@@ -1,1 +1,1 @@
-# Cara buat game GTA San Andreas PC bisa full screen
+# Main berdua di game GTA San Andreas (Tanpa Internet)
